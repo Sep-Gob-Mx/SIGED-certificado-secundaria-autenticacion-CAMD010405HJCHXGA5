@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CAMD010405HJCHXGA5
+CAMD010405HJCHXGA5
